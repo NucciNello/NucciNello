@@ -3,7 +3,7 @@
 
 - 💬 Ask me about **Angular & dJango**
 
-- 📫 How to reach me **caljr9301@gmail.com**
+- 📫 How to reach me **nuhupmandy@gmail.com**
 
 - ⚡ Fun fact: **God created the Big Bang.**
 
